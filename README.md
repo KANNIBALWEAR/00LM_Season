@@ -11,3 +11,6 @@
 That box is then placed in a black foam rugged military container (black, matte).
 Kannibal Logo on the top of the container.
 
+![tag](IMG-1541.jpg)
+![tag](IMG-1540.jpg)
+
